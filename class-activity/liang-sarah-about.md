@@ -1,3 +1,3 @@
 # About Me
 
-Fun Fact: I like to climb.
+Fun Fact: I've been climbing for a year.
